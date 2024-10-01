@@ -1,1 +1,0 @@
-# Atv-em-dupla
